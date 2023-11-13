@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @S0ra6
 - 👀 I’m interested in ... fucking
 - 🌱 I’m currently learning ...fucking
-- 💞️ I’m looking to collaborate on ...fucking filipovsky
+- 💞️ I’m looking to collaborate on ...fuck filipovsky's ass craterhole
 - 📫 How to reach me ...
 
 <!---
