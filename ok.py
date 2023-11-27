@@ -1,0 +1,1 @@
+print("Petovi smrdia jeho pohlavne zlazy");
